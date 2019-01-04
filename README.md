@@ -18,10 +18,7 @@ hjg
 oiytrreew
 asasffghf
 cvc
-nmb
-kjhh
-uyr
-dsa
+i changed readme in main branch
 zxz
 12
 45
